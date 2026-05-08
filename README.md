@@ -1,1 +1,5 @@
-Hi guys! I'm zhang kaipeng. I'm 23 and originally from Jiangsu, China. I'm studying Electrical Engineering here at Daegu Catholic University. I'm a big sports fan—especially when it comes to basketball and hitting the gym. I'm really happy to meet everyone here and I'd love to be friends with you all. Thanks
+Hi guys! I'm zhang kaipeng.
+I'm 23 and originally from Jiangsu, China. 
+I'm studying Electrical Engineering here at Daegu Catholic University.
+I'm a big sports fan—especially when it comes to basketball and hitting the gym.
+I'm really happy to meet everyone here and I'd love to be friends with you all. Thanks
